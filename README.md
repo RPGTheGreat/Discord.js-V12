@@ -5,5 +5,3 @@ https://discord.gg/yqAGXbz
 https://instagram.com/ig_rpg_op
 # Youtube:
 https://www.youtube.com/channel/UCeljooHTPRWPk20xqffccyw
-# Website:
-https://codexshare.glitch.me
